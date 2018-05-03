@@ -1,1 +1,1 @@
-# gungale_terminal
+# GUN GALE TERMINAL
